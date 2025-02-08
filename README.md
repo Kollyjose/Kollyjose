@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Kollyjose
+# 👋🏻 Hi, I’m Kollyjose
 
 ## 👀 Interests
 
